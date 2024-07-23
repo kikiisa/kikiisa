@@ -1,3 +1,1 @@
 - 👋 Hi, I’m @kikiisa
-- 👀 I’m interested in Public Speaking
-- 🌱 I’m currently learning Machine Learning 
