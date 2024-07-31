@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @kikiisa
+Ganteng dan Gegabah
